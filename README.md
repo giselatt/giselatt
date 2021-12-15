@@ -1,4 +1,4 @@
-Senior Academic Librarian at the Humanities and Social Sciences Library of the University of Oslo.
+sandkasse for Gisela
 
 
 <!---
